@@ -7,6 +7,9 @@ At Falcon Innovation & Design, we believe in delivering top-quality creative and
 🌐 Website design & development
 🎨 Graphics, logos & posters
 🎬 Reels & video editing
+📧 Email Marrketing
+✨ Google Ads Marketing
+🖥️ Landing Web Pages
 🛠️ Technical support
 
 💡 Why Choose Us?
@@ -20,8 +23,8 @@ We don’t just create designs or websites – we create experiences that connec
 📩 *Let’s Build Something Amazing Together!
 Reach out today and get your premium designs & support at pocket-friendly prices.
 
-Email us at: falconInnovationdesign@gmail.com
-Call or WhatsApp us at: +91 8878872769, 9755192292
+Email us at: pandolebhavesh2@gmail.com
+Call or WhatsApp us at: +91 8878872769
 
 Check out our website to know more:- 
-https://bhaveshpandole.github.io/Falcon_Innovation_and_Design/
+
